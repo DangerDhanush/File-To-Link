@@ -17,7 +17,7 @@
   
 ## About This Bot
 
-<b><a href="https://www.github.com/moviesofficial" title="Dollow">Follow Me For Updates</a></b>
+<b><a href="https://www.github.com/DangerDhanush" title="Dollow">Follow Me For Updates</a></b>
 
 ## Up to 4GB files Supported ♥️
 
